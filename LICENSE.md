@@ -1,4 +1,4 @@
-
+no-ban Scripts for break a brainrot egg offers the most advanced break a brainrot egg Script, with custom skins and anti-ban. Perfect for dominating
 
 
 
